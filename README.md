@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @fatimack
+- 👀 I’m interested in cognitive applied linguistics 
+- 🌱 I’m currently learning on corpus linguistics
+- 📫 How to reach me: fcheikhkh@gmail.com
